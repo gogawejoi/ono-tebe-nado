@@ -1,1 +1,1 @@
-# ono-tebe-nado
+https://github.com/gogawejoi/ono-tebe-nabo
